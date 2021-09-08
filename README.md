@@ -74,3 +74,4 @@ The following are some research internships for Indian students:
 23. [SPARK](http://spark.iitr.ac.in/), IIT Roorkee
 24. [SRIP](https://srip.iitgn.ac.in/info/), IIT Gandhinagar
 25. [IIT Ropar Summer Internship](https://onlineportal.iitrpr.ac.in/sia-21)[ [Information]](https://www.iitrpr.ac.in/sites/default/files/Advertisement%20for%20Summer%20Internship%202021.pdf), IIT Ropar
+https://www.wemakescholars.com/blog/top-20-foreign-internships-for-indian-students
